@@ -8,9 +8,9 @@ I plan to collect my writing, photographs, videos, and other work here.
 
 Written on 10 October 2026.
 
-#Book reading 
+# Book reading 
 
-##Now reading The art of the good life| Rolf dobelli 
+## Now reading The art of the good life| Rolf dobelli 
 
 
 
